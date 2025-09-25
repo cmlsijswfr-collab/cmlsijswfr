@@ -1,4 +1,4 @@
-Privacy Policy
+Privacy Policy for Cmlsijswfr
 
 Cmlsijswfr does not collect, store, or share any personal data from its users.
 	•	No personal information (such as name, email, or phone number) is required to use the app.
